@@ -4,3 +4,4 @@
 # jeg er bedre enn deg
 #hvorfor er dette så vanskelig
 #er denne good nå?
+#hvorfor er jeg så god
